@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @am1444
 - 👀 I’m interested in algebra, español, aerospace, and programming.
-- Every morning I rise and grind! High school is demanding.
+- Every morning I rise and grind! Freshman year is demanding (I'm gonna look back on that sentence in 3 years and get depressed).
 - 💞️ I’m looking to collaborate on anything that isn't too high stakes LOL
 - 📫 How to reach me: email at mola19786@gmail.com
 - 😄 Pronouns: he/him
