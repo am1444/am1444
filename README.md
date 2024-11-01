@@ -2,6 +2,6 @@
 - 👀 I’m interested in algebra, español, aerospace, and programming.
 - Every morning I rise and grind! Freshman year is demanding (I'm gonna look back on that sentence in 3 years and get depressed).
 - 💞️ I’m looking to collaborate on anything that isn't too high stakes LOL
-- 📫 How to reach me: email at mola19786@gmail.com
+- 📫 How to reach me: email at amdoo10@icloud.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have autism. Specifically, Asperger's Syndrome. I ask that if you want to talk to me, please speak as literally as possible.
