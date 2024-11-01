@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @am1444
+- 👀 I’m interested in algebra, español, aerospace, and programming.
+- Every morning I rise and grind! High school is demanding.
+- 💞️ I’m looking to collaborate on anything that isn't too high stakes LOL
+- 📫 How to reach me: email at mola19786@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have autism. Specifically, Asperger's Syndrome. I ask that if you want to talk to me, please speak as literally as possible.
